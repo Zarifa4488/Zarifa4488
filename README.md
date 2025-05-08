@@ -21,7 +21,7 @@ My goal? To combine functionality, simplicity, and storytelling in everything I 
 
 ## 🌐 Languages
 
-- **Japanese** – Business Level  
+- **Japanese** – Fluent 
 - **English** – Fluent  
 - **Turkish** – Native
 
